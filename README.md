@@ -1,0 +1,1 @@
+# Yaz-Yazma-H-z-n-Hesaplamak
